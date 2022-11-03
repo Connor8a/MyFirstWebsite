@@ -1,2 +1,3 @@
-# MyFirstWebsite
-This is Connor. Hello internet! please don't roast me too hard this is my first time LMAO.
+# Hi I am Connor Ochoa
+
+Hi my name is Connor Ochoa and I personally enjoy music gaming. \n
